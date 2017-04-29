@@ -1,2 +1,2 @@
 # RoEADME.txt
-banana split chocolat
+banana split chocolat vanille avec plein de crème.
